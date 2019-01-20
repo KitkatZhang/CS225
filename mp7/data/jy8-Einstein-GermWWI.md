@@ -1,0 +1,1 @@
+After his graduation, Einstein joined the Germen army as a electrical engineer. About 15 years later, he was killed at the frontline during World War I.
